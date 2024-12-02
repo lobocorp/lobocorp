@@ -1,5 +1,5 @@
-##### <p align="center"> ![](https://i.ibb.co/d4R1NWg/image-removebg-preview-1-1.gif)
-##### <p align="center">  sylvie  ayin ⠀⠀he  she ⠀⠀7 teen ⠀⠀stupid autistic baby kyaa
-##### <p align="center">  FiSe ⠀2w1 ⠀269⠀ so/sp⠀ fvel ⠀rloai ⠀eii⠀ mel ⠀chaoticneu
-##### <p align="center">︶⊹︶ ︶୨୧︶ ︶⊹︶ ![](https://komarev.com/ghpvc/?username=lobocorp&color=cb8087&style=plastic&label=profile+views) ︶⊹︶ ︶୨୧︶ ︶⊹︶
-##### <p align="center"> ![](https://i.ibb.co/2tyJZtV/image.png)
+##### <p align="center"> ![](https://i.ibb.co/b3DjjV2/image.png)
+##### <p align="center"> that one oomf thats too yumejoshi 
+##### <p align="center"> ![](https://komarev.com/ghpvc/?username=lobocorp&color=6e7843&style=plastic&label=profile+views)
+##### <p align="center"> [SIGH MY TREE ILL JUMP UP AND DOWN WITH JOY!](https://colormytree.me/2024/01HH39BGT358FPYY58CJFB737G)
+
